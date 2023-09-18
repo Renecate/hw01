@@ -1,3 +1,3 @@
 # hw01
 *Hi everyone*
-![image](https://github.com/Renecate/hw01/assets/90853383/41c28ad2-d212-4b53-86d0-35d5b94d2d03)
+![image](https://github.com/Renecate/hw01/assets/90853383/740c6566-8aa7-41a5-a90b-a57fa521a703)
